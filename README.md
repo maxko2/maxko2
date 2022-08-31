@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @maxko2
-- 👀 I’m a SW Engenniring student last year untill graduation
+- 👀 I’m a SW Engineering student, last year till graduation
 - 🌱 I’m currently looking for part time job for SW students
 - 📫 How to reach me Maxkobzer@gmail.com
 
